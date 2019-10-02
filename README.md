@@ -1,3 +1,4 @@
+# hi my name is hams i study psychology in the mutah university 
 # growth mindset
 ## How you can benefit from a growth mindset 
 The growth mindset can open pathways to more creativity and possibility  and enable the setting of higher goals and more achievement
